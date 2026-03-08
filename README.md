@@ -1,6 +1,7 @@
 ## ***Now playing : DECO27 - マシュマロ feat.***
 
-<img width="2000" height="1100" alt="y" src="https://github.com/user-attachments/assets/768bd53f-0f85-4306-a101-7961193242b9" />
+<img width="1900" height="1117" alt="y" src="https://github.com/user-attachments/assets/4f06277b-f974-499d-a5dd-69b2bf4d918e" />
+
 
 <h1 align="center"> ──────────── ⋆⋅☆⋅⋆ ──────────── </h1>
 
