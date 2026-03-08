@@ -1,10 +1,11 @@
+***Now playing : DECO27 - マシュマロ feat.***
+
 <img width="2342" height="1377" alt="y" src="https://github.com/user-attachments/assets/768bd53f-0f85-4306-a101-7961193242b9" />
-**Now playing : DECO*27 - マシュマロ feat.**
 
 <!--
 **Candyycrush/Candyycrush** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+
 
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
@@ -15,3 +16,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+**infor**
+- call me Long (for vie) or Ruan
+- i use he/they . im vie
+- im friendly , yub , feel free to int
