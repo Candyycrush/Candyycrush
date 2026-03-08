@@ -17,9 +17,15 @@
 
 𝐢𝐦 𝐚𝐧 𝐚𝐫𝐭𝐢𝐬𝐭/𝐰𝐫𝐢𝐭𝐞𝐫
 
+𝐚𝐥𝐝𝐮𝐥𝐭 . 𝐝𝐧𝐢 𝐰𝐡𝐞𝐧 𝐮 𝐚𝐫𝐞 <𝟏𝟓
+
 𝐌𝐁𝐓𝐈 : 𝐈𝐍𝐅𝐉
 
 <h1 align> interests </h1>
+
+<p align="center">━━━━✧━━━━━━━━━━━━━━ 3:53</p>
+<p align="center"> playing : Slow Damage - Pearl Tower / Anna Evans golden folks
+<p align="center">⇄   ◃  ◃   ❚❚   ▹  ▹   ↺</p>
 
 𝐢 𝐜𝐚𝐧 𝐩𝐥𝐚𝐲 𝐩𝐢𝐚𝐧𝐨 (𝐛𝐚𝐫𝐞𝐥𝐲 . 𝐢𝐦 𝐚 𝐛𝐞𝐠𝐢𝐧𝐧𝐞𝐫) 
 
