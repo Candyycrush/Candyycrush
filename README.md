@@ -24,7 +24,7 @@
 <h1 align> interests </h1>
 
 <p align="center">━━━━✧━━━━━━━━━━━━━━ 3:53</p>
-<p align="center"> playing : Slow Damage - Pearl Tower / Anna Evans golden folks
+<p align="center"> playing : Slow Damage - Pearl Tower / Anna Evans golden folks </p>
 <p align="center">⇄   ◃  ◃   ❚❚   ▹  ▹   ↺</p>
 
 𝐢 𝐜𝐚𝐧 𝐩𝐥𝐚𝐲 𝐩𝐢𝐚𝐧𝐨 (𝐛𝐚𝐫𝐞𝐥𝐲 . 𝐢𝐦 𝐚 𝐛𝐞𝐠𝐢𝐧𝐧𝐞𝐫) 
@@ -36,3 +36,11 @@
 𝐦𝐲 𝐟𝐚𝐯 𝐚𝐫𝐭𝐢𝐬𝐭𝐬 𝐚𝐫𝐞 𝐑𝐞𝐛𝐳𝐲𝐲𝐱 , 𝐒𝐞𝐰𝐞𝐫𝐬𝐥𝐯𝐭 , 𝐌𝐢𝐭𝐬𝐤𝐢 𝐚𝐧𝐝 𝐦𝐨𝐫𝐞
 
 𝐢𝐦 𝐢𝐧 𝐤𝐥𝐞𝐢𝐧𝐯𝟎𝟏 , 𝐢𝐧𝐭𝐤𝐨𝐭 , 𝐩𝐣𝐬𝐤 , 𝐚𝐥𝐧𝐬𝐭 , 𝐝𝐦𝐦𝐝 , 𝐬𝐥𝐨𝐰 𝐝𝐚𝐦𝐚𝐠𝐞 (𝐚𝐧𝐝 𝐦𝐨𝐫𝐞) 𝐚𝐥𝐦𝐨𝐬𝐭 𝐦𝐮𝐥𝐭𝐢𝐟𝐚𝐧𝐝𝐨𝐦
+
+<p align="center"> <img width="538" height="537" alt="itot" src="https://github.com/user-attachments/assets/f3b8f06e-6c8c-44ec-accf-b38a57726a40" /> </p>
+
+<p align="center"> ━━━━━━━━━━━━•──── 𖦤♬.ᐟ 3:53 </p>
+<p align="center"> playing : I'm tired of this / Rebzyyx </p>
+<p align="center">⇄   ◃  ◃   ❚❚   ▹  ▹   ↺</p>
+
+<h1 align> dni </h1>
