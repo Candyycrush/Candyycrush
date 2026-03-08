@@ -1,5 +1,5 @@
 <img width="2342" height="1377" alt="y" src="https://github.com/user-attachments/assets/768bd53f-0f85-4306-a101-7961193242b9" />
-## Now playing : DECO*27 - マシュマロ feat. 
+##Now playing : DECO*27 - マシュマロ feat. 
 
 <!--
 **Candyycrush/Candyycrush** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
