@@ -23,7 +23,7 @@
 
 <h1 align> interests </h1>
 
-<p align="center">━━━━✧━━━━━━━━━━━━━━ 3:53</p>
+<p align="center">━━━━✧────────────3:53</p>
 <p align="center"> playing : Slow Damage - Pearl Tower / Anna Evans golden folks </p>
 <p align="center">⇄   ◃  ◃   ❚❚   ▹  ▹   ↺</p>
 
@@ -39,7 +39,7 @@
 
 <p align="center"> <img width="538" height="537" alt="itot" src="https://github.com/user-attachments/assets/f3b8f06e-6c8c-44ec-accf-b38a57726a40" /> </p>
 
-<p align="center"> ━━━━━━━━━━━━•──── 𖦤♬.ᐟ 3:53 </p>
+<p align="center"> ━━━━━━━━━━━●──── 𖦤♬.ᐟ 2:37 </p>
 <p align="center"> playing : I'm tired of this / Rebzyyx </p>
 <p align="center">⇄   ◃  ◃   ❚❚   ▹  ▹   ↺</p>
 
