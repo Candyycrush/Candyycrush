@@ -17,13 +17,15 @@
 
 𝐢𝐦 𝐚𝐧 𝐚𝐫𝐭𝐢𝐬𝐭/𝐰𝐫𝐢𝐭𝐞𝐫
 
-𝐚𝐥𝐝𝐮𝐥𝐭 . 𝐝𝐧𝐢 𝐰𝐡𝐞𝐧 𝐮 𝐚𝐫𝐞 <𝟏𝟓
+𝐚𝐥𝐝𝐮𝐥𝐭 . >𝟏𝟖
 
 𝐌𝐁𝐓𝐈 : 𝐈𝐍𝐅𝐉
 
 <h1 align> interests </h1>
 
-<p align="center">━━━━✧────────────3:53</p>
+<p align="center"> <img width="1200" height="175" alt="logo_slow-damage" src="https://github.com/user-attachments/assets/f3f48076-986f-402f-8a2c-235fcfd61904" /> </p>
+
+<p align="center"> ──────●━━━━━━━━━━━━━━━━━ ♬ 3:53 </p>
 <p align="center"> playing : Slow Damage - Pearl Tower / Anna Evans golden folks </p>
 <p align="center">⇄   ◃  ◃   ❚❚   ▹  ▹   ↺</p>
 
@@ -39,8 +41,14 @@
 
 <p align="center"> <img width="538" height="537" alt="itot" src="https://github.com/user-attachments/assets/f3b8f06e-6c8c-44ec-accf-b38a57726a40" /> </p>
 
-<p align="center"> ━━━━━━━━━━━●──── 𖦤♬.ᐟ 2:37 </p>
+<p align="center"> ────────────────●━━━━━━━ 𖦤 ♬.ᐟ 2:37 </p>
 <p align="center"> playing : I'm tired of this / Rebzyyx </p>
 <p align="center">⇄   ◃  ◃   ❚❚   ▹  ▹   ↺</p>
 
 <h1 align> dni </h1>
+
+𝐩𝐞𝐨𝐩𝐥𝐞 <𝟏𝟓 𝐨𝐫 𝐣𝐬 𝐛𝐞𝐢𝐧𝐠 𝐚 𝐟𝐫𝐞𝐚𝐤
+
+𝐲𝐚𝐞𝐥'𝐬 𝐟𝐚𝐧 / 𝐡𝐚𝐬 𝐲𝐮𝐦𝐞𝐬𝐡𝐢𝐩 𝐰𝐢𝐭𝐡 𝐲𝐚𝐞𝐥
+
+𝐩𝐞𝐝𝐨 , 𝐀𝐈 "𝐚𝐫𝐭𝐢𝐬𝐭"
