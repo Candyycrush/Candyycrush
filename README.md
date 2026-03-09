@@ -1,4 +1,4 @@
-## ***Now playing : DECO27 - マシュマロ feat.Ruan***
+## ***Now playing : DECO'27 - マシュマロ feat. Ruan***
 
 <img width="1900" height="1117" alt="y" src="https://github.com/user-attachments/assets/4f06277b-f974-499d-a5dd-69b2bf4d918e" />
 
@@ -18,7 +18,7 @@
 
 𝐢𝐦 𝐚𝐧 𝐚𝐫𝐭𝐢𝐬𝐭/𝐰𝐫𝐢𝐭𝐞𝐫
 
-𝐚𝐥𝐝𝐮𝐥𝐭 . >𝟏𝟖
+𝐚𝐝𝐮𝐥𝐭 . >𝟏𝟖
 
 𝐌𝐁𝐓𝐈 : 𝐈𝐍𝐅𝐉
 
