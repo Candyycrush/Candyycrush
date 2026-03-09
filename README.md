@@ -4,6 +4,8 @@
 
 <h1 align="center"> ──────────── ⋆⋅☆⋅⋆ ──────────── </h1>
 
+*[ata](https://ngoclong.atabook.org/) _♬_ [fb](https://www.facebook.com/ngoclongcite/)*
+
 <h1 align> infor </h1>
 
 <p >︒ 𓈒 ೀ ꒱ __________________ ׂׂૢ་༘࿐ </p>
