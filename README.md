@@ -2,7 +2,6 @@
 
 <img width="1900" height="1117" alt="y" src="https://github.com/user-attachments/assets/4f06277b-f974-499d-a5dd-69b2bf4d918e" />
 
-
 <h1 align="center"> ──────────── ⋆⋅☆⋅⋆ ──────────── </h1>
 
 <h1 align> infor </h1>
