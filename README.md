@@ -4,7 +4,7 @@
 
 <h1 align="center"> ──────────── ⋆⋅☆⋅⋆ ──────────── </h1>
 
-*[ata](https://ngoclong.atabook.org/) _♬_ [fb](https://www.facebook.com/ngoclongcite/)*
+*[ata](https://ngoclong.atabook.org/) _♬_ [fb](https://www.facebook.com/ngoclongcite/) _♬_ [en.pronouns](https://en.pronouns.page/@longsocute)*
 
 <h1 align> infor </h1>
 
