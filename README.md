@@ -1,4 +1,4 @@
-## ***Now playing : DECO27 - マシュマロ feat.***
+## ***Now playing : DECO27 - マシュマロ feat.Ruan***
 
 <img width="1900" height="1117" alt="y" src="https://github.com/user-attachments/assets/4f06277b-f974-499d-a5dd-69b2bf4d918e" />
 
