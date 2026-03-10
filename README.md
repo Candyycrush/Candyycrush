@@ -6,7 +6,7 @@
 
 <p align="center"> <a href="https://u8views.com/github/Candyycrush"><img src="https://u8views.com/api/v1/github/profiles/256023341/views/total-count.svg"></a> </p>
 
-*[ata](https://ngoclong.atabook.org/) _♬_ [fb](https://www.facebook.com/ngoclongcite/) _♬_ [en.pronouns](https://en.pronouns.page/@longsocute)*
+bro look those are my links for more infors about me ──> *[ata](https://ngoclong.atabook.org/) _♬_ [fb](https://www.facebook.com/ngoclongcite/) _♬_ [en.pronouns](https://en.pronouns.page/@longsocute)*
 
 <h1 align> infor </h1>
 
@@ -32,6 +32,8 @@
 <p align="center"> playing : Slow Damage - Pearl Tower / Anna Evans golden folks </p>
 <p align="center">⇄   ◃  ◃   ❚❚   ▹  ▹   ↺</p>
 
+<p >︒ 𓈒 ೀ ꒱ __________________ ׂׂૢ་༘࿐ </p>
+
 𝐢 𝐜𝐚𝐧 𝐩𝐥𝐚𝐲 𝐩𝐢𝐚𝐧𝐨 (𝐛𝐚𝐫𝐞𝐥𝐲 . 𝐢𝐦 𝐚 𝐛𝐞𝐠𝐢𝐧𝐧𝐞𝐫) 
 
 𝐢 𝐥𝐨𝐯𝐞 𝐩𝐥𝐚𝐲𝐢𝐧𝐠 𝐫𝐡𝐲𝐭𝐡𝐦 𝐠𝐚𝐦𝐞𝐬 𝐚𝐧𝐝 𝐯𝐢𝐬𝐮𝐚𝐥 𝐧𝐨𝐯𝐞𝐥𝐬 
@@ -49,6 +51,8 @@
 <p align="center">⇄   ◃  ◃   ❚❚   ▹  ▹   ↺</p>
 
 <h1 align> dni </h1>
+
+<p >︒ 𓈒 ೀ ꒱ __________________ ׂׂૢ་༘࿐ </p>
 
 𝐩𝐞𝐨𝐩𝐥𝐞 <𝟏𝟓 𝐨𝐫 𝐣𝐬 𝐛𝐞𝐢𝐧𝐠 𝐚 𝐟𝐫𝐞𝐚𝐤
 
