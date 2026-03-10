@@ -4,6 +4,8 @@
 
 <h1 align="center"> ──────────── ⋆⋅☆⋅⋆ ──────────── </h1>
 
+<p align="center"> <a href="https://u8views.com/github/Candyycrush"><img src="https://u8views.com/api/v1/github/profiles/256023341/views/total-count.svg"></a> </p>
+
 *[ata](https://ngoclong.atabook.org/) _♬_ [fb](https://www.facebook.com/ngoclongcite/) _♬_ [en.pronouns](https://en.pronouns.page/@longsocute)*
 
 <h1 align> infor </h1>
