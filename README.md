@@ -6,7 +6,7 @@
 
 <p align="center"> <a href="https://u8views.com/github/Candyycrush"><img src="https://u8views.com/api/v1/github/profiles/256023341/views/total-count.svg"></a> </p>
 
-bro look those are my links for more infors about me ──> *[ata](https://ngoclong.atabook.org/) _♬_ [fb](https://www.facebook.com/ngoclongcite/) _♬_ [en.pronouns](https://en.pronouns.page/@longsocute)*
+bro look those are my links for more infors about me ──> *[ATABOOK](https://ngoclong.atabook.org/) _♬_ [FACEBOOK](https://www.facebook.com/ngoclongcite/) _♬_ [EN.PRONOUNS](https://en.pronouns.page/@longsocute)*
 
 <h1 align> infor </h1>
 
