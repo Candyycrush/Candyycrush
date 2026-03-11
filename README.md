@@ -4,7 +4,9 @@
 
 <h1 align="center"> ──────────── ⋆⋅☆⋅⋆ ──────────── </h1>
 
-<p align="center"> <a href="https://u8views.com/github/Candyycrush"><img src="https://u8views.com/api/v1/github/profiles/256023341/views/total-count.svg"></a> </p>
+<p align="center">
+<img src="https://komarev.com/ghpvc/?username=Candyycrush&color=8b1919&style=for-the-badge&label=welcome+!"
+alt="visitors"> </p>
 
 bro look those are my links for more infors about me ──> *[ATABOOK](https://ngoclong.atabook.org/) _♬_ [FACEBOOK](https://www.facebook.com/ngoclongcite/) _♬_ [EN.PRONOUNS](https://en.pronouns.page/@longsocute)*
 
