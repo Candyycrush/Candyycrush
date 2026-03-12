@@ -2,6 +2,8 @@
 
 <img width="600" height="353" alt="y" src="https://github.com/user-attachments/assets/4f06277b-f974-499d-a5dd-69b2bf4d918e" />
 
+art by me do not repost please im begging you
+
 <h1 align="center"> ‧₊˚. 𖥔 ݁  ˖ . ݁₊  ⊹ . ݁˖ ٠ .٠ ࣪. ݁₊ ⊹ . ˚.₊‧ </h1>
 
 <p align="center">
