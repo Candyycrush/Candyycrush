@@ -1,3 +1,5 @@
+bro look those are my links for more infors about me ──> *[ATABOOK](https://ngoclong.atabook.org/) _♬_ [FACEBOOK](https://www.facebook.com/ngoclongcite/) _♬_ [EN.PRONOUNS](https://en.pronouns.page/@candyycrush)*
+
 ## ***Now playing : DECO'27 - マシュマロ feat. Ruan***
 
 <img width="600" height="353" alt="y" src="https://github.com/user-attachments/assets/4f06277b-f974-499d-a5dd-69b2bf4d918e" />
@@ -10,7 +12,6 @@ art by me do not repost please im begging you
 <img src="https://komarev.com/ghpvc/?username=Candyycrush&color=8b1919&style=for-the-badge&label=welcome+!"
 alt="visitors"> </p>
 
-bro look those are my links for more infors about me ──> *[ATABOOK](https://ngoclong.atabook.org/) _♬_ [FACEBOOK](https://www.facebook.com/ngoclongcite/) _♬_ [EN.PRONOUNS](https://en.pronouns.page/@candyycrush)*
 
 <h1 align> infor </h1>
 
