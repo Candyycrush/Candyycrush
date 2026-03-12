@@ -8,7 +8,7 @@
 <img src="https://komarev.com/ghpvc/?username=Candyycrush&color=8b1919&style=for-the-badge&label=welcome+!"
 alt="visitors"> </p>
 
-bro look those are my links for more infors about me ──> *[ATABOOK](https://ngoclong.atabook.org/) _♬_ [FACEBOOK](https://www.facebook.com/ngoclongcite/) _♬_ [EN.PRONOUNS](https://en.pronouns.page/@longsocute)*
+bro look those are my links for more infors about me ──> *[ATABOOK](https://ngoclong.atabook.org/) _♬_ [FACEBOOK](https://www.facebook.com/ngoclongcite/) _♬_ [EN.PRONOUNS](https://en.pronouns.page/@candyycrush)*
 
 <h1 align> infor </h1>
 
