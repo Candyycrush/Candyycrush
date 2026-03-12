@@ -46,7 +46,7 @@ bro look those are my links for more infors about me ──> *[ATABOOK](https://
 
 𝐢𝐦 𝐢𝐧 𝐤𝐥𝐞𝐢𝐧𝐯𝟎𝟏 , 𝐢𝐧𝐭𝐤𝐨𝐭 , 𝐩𝐣𝐬𝐤 , 𝐚𝐥𝐧𝐬𝐭 , 𝐝𝐦𝐦𝐝 , 𝐬𝐥𝐨𝐰 𝐝𝐚𝐦𝐚𝐠𝐞 (𝐚𝐧𝐝 𝐦𝐨𝐫𝐞) 𝐚𝐥𝐦𝐨𝐬𝐭 𝐦𝐮𝐥𝐭𝐢𝐟𝐚𝐧𝐝𝐨𝐦
 
-<p align="center"> <img width="538" height="537" alt="itot" src="https://github.com/user-attachments/assets/f3b8f06e-6c8c-44ec-accf-b38a57726a40" /> </p>
+<p align="center"> <img width="400" height="398" alt="itot" src="https://github.com/user-attachments/assets/f3b8f06e-6c8c-44ec-accf-b38a57726a40" /> </p>
 
 <p align="center"> ────────────────●━━━━━━━ 𖦤 ♬.ᐟ 2:37 </p>
 <p align="center"> playing : I'm tired of this / Rebzyyx </p>
