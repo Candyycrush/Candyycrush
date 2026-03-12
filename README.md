@@ -1,8 +1,8 @@
 ## ***Now playing : DECO'27 - マシュマロ feat. Ruan***
 
-<img width="1900" height="1117" alt="y" src="https://github.com/user-attachments/assets/4f06277b-f974-499d-a5dd-69b2bf4d918e" />
+<img width="600" height="353" alt="y" src="https://github.com/user-attachments/assets/4f06277b-f974-499d-a5dd-69b2bf4d918e" />
 
-<h1 align="center"> ──────────── ⋆⋅☆⋅⋆ ──────────── </h1>
+<h1 align="center"> ‧₊˚. 𖥔 ݁  ˖ . ݁₊  ⊹ . ݁˖ ٠ .٠ ࣪. ݁₊ ⊹ . ˚.₊‧ </h1>
 
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=Candyycrush&color=8b1919&style=for-the-badge&label=welcome+!"
