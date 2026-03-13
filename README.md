@@ -33,7 +33,7 @@ alt="visitors"> </p>
 
 <h1 align> interests </h1>
 
-<p align="center"> <img width="1200" height="175" alt="logo_slow-damage" src="https://github.com/user-attachments/assets/f3f48076-986f-402f-8a2c-235fcfd61904" /> </p>
+<p align="center"> <img width="600" height="75" alt="logo_slow-damage" src="https://github.com/user-attachments/assets/f3f48076-986f-402f-8a2c-235fcfd61904" /> </p>
 
 <p align="center"> ──────●━━━━━━━━━━━━━━━━━ ♬ 3:53 </p>
 <p align="center"> playing : Slow Damage - Pearl Tower / Anna Evans golden folks </p>
@@ -51,7 +51,7 @@ alt="visitors"> </p>
 
 𝐢𝐦 𝐢𝐧 𝐤𝐥𝐞𝐢𝐧𝐯𝟎𝟏 , 𝐢𝐧𝐭𝐤𝐨𝐭 , 𝐩𝐣𝐬𝐤 , 𝐚𝐥𝐧𝐬𝐭 , 𝐝𝐦𝐦𝐝 , 𝐬𝐥𝐨𝐰 𝐝𝐚𝐦𝐚𝐠𝐞 (𝐚𝐧𝐝 𝐦𝐨𝐫𝐞) 𝐚𝐥𝐦𝐨𝐬𝐭 𝐦𝐮𝐥𝐭𝐢𝐟𝐚𝐧𝐝𝐨𝐦
 
-<p align="center"> <img width="400" height="398" alt="itot" src="https://github.com/user-attachments/assets/f3b8f06e-6c8c-44ec-accf-b38a57726a40" /> </p>
+<p align="center"> <img width="200" height="198" alt="itot" src="https://github.com/user-attachments/assets/f3b8f06e-6c8c-44ec-accf-b38a57726a40" /> </p>
 
 <p align="center"> ────────────────●━━━━━━━ 𖦤 ♬.ᐟ 2:37 </p>
 <p align="center"> playing : I'm tired of this / Rebzyyx </p>
@@ -66,3 +66,17 @@ alt="visitors"> </p>
 𝐲𝐚𝐞𝐥'𝐬 𝐟𝐚𝐧 / 𝐡𝐚𝐬 𝐲𝐮𝐦𝐞𝐬𝐡𝐢𝐩 𝐰𝐢𝐭𝐡 𝐲𝐚𝐞𝐥
 
 𝐩𝐞𝐝𝐨 , 𝐀𝐈 "𝐚𝐫𝐭𝐢𝐬𝐭"
+
+𝐫𝐚𝐜𝐢𝐬𝐭, 𝐬𝐞𝐱𝐢𝐬𝐭, 𝐪𝐮𝐞𝐞𝐫𝐩𝐡𝐨𝐛𝐢𝐜, 𝐚𝐛𝐥𝐞𝐢𝐬𝐭, 𝐳𝐢𝐨𝐧𝐢𝐬𝐭, 𝐞𝐭𝐜.
+
+<h1 align> byi </h1> 
+
+<p >︒ 𓈒 ೀ ꒱ __________________ ׂׂૢ་༘࿐ </p>
+
+𝐢 𝐡𝐚𝐯𝐞 𝐚𝐝𝐡𝐝, 𝐚𝐧𝐝 𝐮𝐬𝐞𝐝 𝐭𝐨 𝐡𝐚𝐯𝐞 𝐦𝐝𝐝 . 𝐩𝐥𝐞𝐚𝐬𝐞 𝐛𝐞 𝐩𝐚𝐭𝐢𝐞𝐧𝐭 𝐰𝐢𝐭𝐡 𝐦𝐞
+
+𝐢 𝐫𝐞𝐚𝐜𝐭 𝐬𝐥𝐨𝐰𝐥𝐲 𝐚𝐧𝐝 𝐬𝐨𝐦𝐞𝐭𝐢𝐦𝐞𝐬 𝐬𝐮𝐝𝐝𝐞𝐧𝐥𝐲 𝐝𝐢𝐬𝐚𝐩𝐩𝐞𝐚𝐫 ; 𝐝𝐰 , 𝐢 𝐦𝐢𝐠𝐡𝐭 𝐛𝐞 𝐛𝐚𝐜𝐤 𝐥𝐚𝐭𝐞𝐫
+
+𝐢 𝐦𝐚𝐤𝐞 𝐤𝐦𝐬/𝐤𝐲𝐬/𝐦𝐞𝐧𝐭𝐚𝐥 𝐡𝐞𝐚𝐥𝐭𝐡 𝐣𝐨𝐤𝐞𝐬 (𝐫𝐚𝐫𝐞𝐥𝐲) 
+
+𝐢𝐦 𝐚 𝐦𝐮𝐥𝐭𝐢𝐬𝐡𝐢𝐩𝐩𝐞𝐫 𝐚𝐧𝐝 𝐲𝐮𝐦𝐞𝐬𝐡𝐢𝐩𝐩𝐞𝐫 . 𝐢 𝐥𝐨𝐯𝐞 𝐦𝐲 𝐦𝐚𝐥𝐞 𝐰𝐢𝐟𝐞 𝐲𝐚𝐞𝐥 ^_^
