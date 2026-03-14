@@ -19,7 +19,7 @@ alt="visitors"> </p>
 
 <p >︒ 𓈒 ೀ ꒱ __________________ ׂׂૢ་༘࿐ </p>
 
-𝐜𝐚𝐥𝐥 𝐦𝐞 𝐋𝐨𝐧𝐠 (𝐟𝐨𝐫 𝐯𝐢𝐞) 𝐨𝐫 𝐑𝐮𝐚𝐧
+𝐜𝐚𝐥𝐥 𝐦𝐞 𝐋𝐨𝐧𝐠 (𝐟𝐨𝐫 𝐯𝐢𝐞) 𝐨𝐫 𝐑𝐮𝐚𝐧 𝐨𝐫 𝐂𝐚𝐧𝐝𝐲 !
 
 𝐡𝐞/𝐭𝐡𝐞𝐲 . 𝐯𝐢𝐞/𝐞𝐧𝐠 (𝐢𝐦 𝐥𝐰𝐤 𝐛𝐚𝐝 𝐚𝐭 𝐞𝐧𝐠)
 
@@ -53,7 +53,7 @@ alt="visitors"> </p>
 
 <p align="center"> <img width="200" height="198" alt="itot" src="https://github.com/user-attachments/assets/f3b8f06e-6c8c-44ec-accf-b38a57726a40" /> </p>
 
-<p align="center"> ────────────────●━━━━━━━ 𖦤 ♬.ᐟ 2:37 </p>
+<p align="center"> ─────────────●━━━━━━━ 𖦤 ♬.ᐟ 2:37 </p>
 <p align="center"> playing : I'm tired of this / Rebzyyx </p>
 <p align="center">⇄   ◃  ◃   ❚❚   ▹  ▹   ↺</p>
 
