@@ -1,6 +1,6 @@
 bro look those are my links for more infors about me ──> *[ATABOOK](https://candycrush.atabook.org/) _♬_ [EN.PRONOUNS](https://en.pronouns.page/@candyycrush) _♬_ [STRAWPAGE](https://candyycrush.straw.page/)*
 
-another social medias ──> *[FACEBOOK](https://www.facebook.com/ngoclongcite/) _♬_ [TIKTOK](https://www.tiktok.com/@long_ruan) _♬_ [TUMBLR](https://www.tumblr.com/blog/ruanthecutiest) _♬_ [DISCORD](https://discord.gg/wRdCVkWq)*
+another social medias ──> *[FACEBOOK](https://www.facebook.com/ngoclongcite/) _♬_ [TIKTOK](https://www.tiktok.com/@candyycrush05) _♬_ [TUMBLR](https://www.tumblr.com/blog/ruanthecutiest) _♬_ [DISCORD](https://discord.gg/wRdCVkWq)*
 
 ## ***Now playing : DECO'27 - マシュマロ feat. Ruan***
 
