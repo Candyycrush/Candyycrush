@@ -3,9 +3,7 @@ about me ──> *[all infos](https://candyycrushh.carrd.co/) _♬_ [atabook](ht
 another social medias ──> *[facebook](https://www.facebook.com/ngoclongcite/) _♬_ [tiktok](https://www.tiktok.com/@candyycrush05) _♬_ [tumblr](https://www.tumblr.com/blog/ruanthecutiest) _♬_ [discord](https://discord.gg/wRdCVkWq)*
 
 
-<p align="center"> <img width="600" height="353" alt="y" src="https://github.com/user-attachments/assets/4f06277b-f974-499d-a5dd-69b2bf4d918e" />
-
-art by me do not repost please im begging you
+<p align="center"> <img width="600" height="353" alt="y" src="https://i.pinimg.com/originals/be/6f/9a/be6f9a25e4bf8626a124820c88866b76.gif" />
 
 <h1 align="center"> ‧₊˚. 𖥔 ݁  ˖ . ݁₊  ⊹ . ݁˖ ٠ .٠ ࣪. ݁₊ ⊹ . ˚.₊‧ </h1>
 
