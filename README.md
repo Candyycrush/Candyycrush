@@ -8,5 +8,5 @@ another social medias ──> *[facebook](https://www.facebook.com/ngoclongcite/
 <h1 align="center"> ‧₊˚. 𖥔 ݁  ˖ . ݁₊  ⊹ . ݁˖ ٠ .٠ ࣪. ݁₊ ⊹ . ˚.₊‧ </h1>
 
 <p align="center">
-<img src="https://komarev.com/ghpvc/?username=Candyycrush&color=8b1919&style=for-the-badge&label=welcome+!"
+<img src="https://komarev.com/ghpvc/?username=Candyycrush&color=fb76ad&style=for-the-badge&label=candies+!"
 alt="visitors"> </p>
