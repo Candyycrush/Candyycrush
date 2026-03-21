@@ -1,6 +1,6 @@
 about me ──> *[all infos](https://candyycrushh.carrd.co/) _♬_ [atabook](https://candycrush.atabook.org/) _♬_ [en.pronouns](https://en.pronouns.page/@candyycrush) _♬_ [strawpage](https://candyycrush.straw.page/)*
 
-another social medias ──> *[facebook](https://www.facebook.com/ngoclongcite/) _♬_ [tiktok](https://www.tiktok.com/@candyycrush05) _♬_ [tumblr](https://www.tumblr.com/blog/ruanthecutiest) _♬_ [discord](https://discord.gg/wRdCVkWq)*
+another social medias ──> *[facebook](https://www.facebook.com/ngoclongcite/) _♬_ [tiktok](https://www.tiktok.com/@candyycrush05) _♬_ [tumblr](https://www.tumblr.com/blog/ruanthecutiest) _♬_ discord: long0511_*
 
 
 <p align="center"> <img width="600" height="353" alt="y" src="https://i.pinimg.com/originals/be/6f/9a/be6f9a25e4bf8626a124820c88866b76.gif" />
