@@ -2,11 +2,8 @@ about me ──> *[all infos](https://candyycrushh.carrd.co/) _♬_ [atabook](ht
 
 another social medias ──> *[facebook](https://www.facebook.com/ngoclongcite/) _♬_ [tiktok](https://www.tiktok.com/@candyycrush05) _♬_ [tumblr](https://www.tumblr.com/blog/ruanthecutiest) _♬_ discord: long0511_*
 
-<h1 align="center"> ‧₊˚. 𖥔 ݁  ˖ . ݁₊  ⊹ . ݁˖ ٠ .٠ ࣪. ݁₊ ⊹ . ˚.₊‧ </h1>
-
-<p align="center">
-<img src="https://komarev.com/ghpvc/?username=Candyycrush&color=fb76ad&style=for-the-badge&label=candies+!"
-alt="visitors"> </p>
+<h1 align="center"><img src="https://komarev.com/ghpvc/?username=Candyycrush&color=fb76ad&style=for-the-badge&label=candies+!"
+alt="visitors"> </h1>
 
 「去りゆく衝動亀裂の海
 
