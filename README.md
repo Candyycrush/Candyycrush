@@ -20,9 +20,9 @@ alt="visitors"> </p>
 
 Vòng xoáy u hoài ôm trọn một thế giới chẳng thể tỉnh mộng 
 
-Nhịp tim vọng mãi trong cõi vĩnh hằng giữa mặt biển nứt nẻ
+Trái tim ngân vang nơi vĩnh cửu giữa mặt biển nứt nẻ
 
-Vòng xoáy u ám ôm trọn một thế gian mịt mờ vốn chẳng thể gọi tên"
+Cơn lốc u ám ôm lấy một thế gian hư ảo chẳng thể gọi tên"
 
 <p align="center"> <img width="600" height="353" alt="y" src="https://i.pinimg.com/originals/be/6f/9a/be6f9a25e4bf8626a124820c88866b76.gif" />
 
