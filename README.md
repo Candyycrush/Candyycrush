@@ -1,6 +1,6 @@
 about me ──> *[all infos](https://candyycrushh.carrd.co/) _♬_ [atabook](https://candycrush.atabook.org/) _♬_ [en.pronouns](https://en.pronouns.page/@candyycrush) _♬_ [strawpage](https://candyycrush.straw.page/)*
 
-another social medias ──> *[facebook](https://www.facebook.com/ngoclongcite/) _♬_ [tiktok](https://www.tiktok.com/@candyycrush05) _♬_ [tumblr](https://www.tumblr.com/blog/ruanthecutiest) _♬_ discord: long0511_*
+another social medias ──> *[facebook](https://www.facebook.com/ngoclongcite/) _♬_ [tiktok](https://www.tiktok.com/@candyycrush05) _♬_ [tumblr](https://www.tumblr.com/blog/candycrush05) _♬_ discord: long0511_*
 
 <h1 align="center"><img src="https://komarev.com/ghpvc/?username=Candyycrush&color=fb76ad&style=for-the-badge&label=candies+!"
 alt="visitors"> </h1>
