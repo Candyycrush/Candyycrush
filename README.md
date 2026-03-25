@@ -21,7 +21,9 @@ Vòng xoáy u hoài ôm trọn một thế giới chẳng thể tỉnh mộng
 
 Trái tim ngân vang nơi vĩnh cửu giữa mặt biển nứt nẻ
 
-Cơn lốc u ám ôm lấy một thế gian hư ảo chẳng thể gọi tên"⠀.⠀After all 　⠀𝄞　⠀ THE ANDS
+Cơn lốc u ám ôm lấy một thế gian hư ảo chẳng thể gọi tên"
+
+  　⠀ ★⋆. ࿐࿔  After all 　⠀𝄞　⠀ THE ANDS
 
 　⠀
 
