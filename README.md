@@ -3,7 +3,7 @@ alt="visitors"> </h1>
 
 [<img width="146.375" height="129.125" alt="j" src="https://github.com/user-attachments/assets/9c9683a3-1f03-41a3-81b2-c51cca25610f" />](https://candyycrushh.carrd.co/)　⠀ 　⠀ ★　⠀ 　⠀ [<img width="146.375" height="129.125" alt="jj" src="https://github.com/user-attachments/assets/f607a291-c9d8-4264-b02c-d8b498acba01" />](https://candycrush.atabook.org/)
 
-　⠀ 　all infos 　⠀ 　⠀ 　⠀ 　⠀ ⠀ 　⠀ 　 　⠀ atabook
+　⠀ 　all infos 　⠀ 　⠀ 　⠀ 　 　⠀ ⠀ 　⠀ 　 　⠀ atabook
 
 <p align="center"> <img width="2342" height="2066" alt="tw" src="https://github.com/user-attachments/assets/cb483138-e57b-4635-ac8c-9fed44a5a8fd" />
 
