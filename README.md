@@ -29,3 +29,5 @@ Cơn lốc u ám ôm lấy một thế gian hư ảo chẳng thể gọi tên"
 　⠀
 
 *[en.pronouns](https://en.pronouns.page/@candyycrush) ⋆˚꩜ [strawpage](https://candyycrush.straw.page/) ⋆˚꩜ [facebook](https://www.facebook.com/ngoclongcite/) ★⋆. ࿐࿔ [tiktok](https://www.tiktok.com/@candyycrush05) ⋆˚꩜ [tumblr](https://www.tumblr.com/blog/candycrush05) ⋆˚꩜ discord: long0511_*
+
+ill rmk those lil shitty ahh thingy when im in mood;; ⭡
