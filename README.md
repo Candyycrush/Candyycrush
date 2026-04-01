@@ -21,14 +21,6 @@ alt="visitors"> </h1>
 
 不愉快なスパイラル知れない世界」
 
-" Những rung động dần tan trong đại dương rạn vỡ
-
-Vòng xoáy u hoài ôm trọn một thế giới chẳng thể tỉnh mộng 
-
-Trái tim ngân vang nơi vĩnh cửu giữa mặt biển nứt nẻ
-
-Cơn lốc u ám ôm lấy một thế gian hư ảo chẳng thể gọi tên"
-
   　⠀ ★⋆. ࿐࿔  After all 　⠀𝄞　⠀ THE ANDS
 
 　⠀
