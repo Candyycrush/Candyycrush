@@ -5,11 +5,6 @@ alt="visitors"> </h1>
 
 [<img width="146.375" height="129.125" alt="jj" src="https://github.com/user-attachments/assets/f607a291-c9d8-4264-b02c-d8b498acba01" />](https://candycrush.atabook.org/)  ↰　　 .★⋆.　  [atabook](https://candycrush.atabook.org/)
 
-🟢 : im online and looking for chat ! pls int ^_^
-
-🌙 : shhh... im afk/offtab . pls whis to int !
-
-⛔️ : im busy; studying , working , doing stuff . pls whis to int !
 
 <p align="center"> <img width="2342" height="2066" alt="tw" src="https://github.com/user-attachments/assets/cb483138-e57b-4635-ac8c-9fed44a5a8fd" />
 
