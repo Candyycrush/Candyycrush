@@ -1,7 +1,7 @@
 <h1 align="center"><img src="https://komarev.com/ghpvc/?username=Candyycrush&color=130D36&style=for-the-badge&label=candies+!"
 alt="visitors"> </h1>
 
-[<img width="146.375" height="129.125" alt="j" src="https://github.com/user-attachments/assets/9c9683a3-1f03-41a3-81b2-c51cca25610f" />](https://candyycrushh.carrd.co/)  ↰ 　　 .★⋆.  　[all infos](https://candyycrushh.carrd.co/) (will rmk later its go ugly >:(.)
+[<img width="146.375" height="129.125" alt="j" src="https://github.com/user-attachments/assets/9c9683a3-1f03-41a3-81b2-c51cca25610f" />](https://candyycrushh.carrd.co/)  ↰ 　　 .★⋆.  　[all infos](https://candyycrushh.carrd.co/) (will rmk later its so ugly >:(.)
 
 [<img width="146.375" height="129.125" alt="jj" src="https://github.com/user-attachments/assets/f607a291-c9d8-4264-b02c-d8b498acba01" />](https://candycrush.atabook.org/)  ↰　　 .★⋆.　  [atabook](https://candycrush.atabook.org/)
 
